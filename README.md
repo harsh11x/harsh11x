@@ -11,5 +11,5 @@ I’m driven to create groundbreaking solutions, from unbreakable blockchain sec
 ## 💬 **Connect With Me**
 I welcome collaboration with like-minded visionaries ready to reshape the digital landscape.
 
-## 📧 **Contact**
-Reach out at: [harshdevsingh2004@gmail.com](mailto:harshdevsingh2004@gmail.com)
+#### 📧 **Contact me at:**
+ [harshdevsingh2004@gmail.com](mailto:harshdevsingh2004@gmail.com)
